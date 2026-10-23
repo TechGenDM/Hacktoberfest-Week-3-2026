@@ -9,3 +9,7 @@ Today is 22nd and I have an eye on competitors dev posts.
 Tommorow at 23rd I will make my final own research with planning and also final compititors what done on that time. 
 
 And after analysing everything properly I will start building my Project.
+
+Thank You For Reading!
+
+From tomorrow onwards I am going to start building projects.
